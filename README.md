@@ -3,7 +3,7 @@
  Me chamo *Ana Paula* 🐈‍⬛🖤
 
 - Atualmento sou estudante do ensino médio 😸
-- Utilizarei esse espaço para futuros projetos
+- Utilizarei esse espaço para futuros projetos 💔
 
   ### Você pode entrar em contato comigo por aqui: 
   📨anaapaulla056@gmail.com
